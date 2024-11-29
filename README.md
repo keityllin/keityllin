@@ -12,7 +12,7 @@ meu nome é keitylin rondino
 
 @keityllinrondino
 
-https://medial.tenor.com/m/opEBWw0uddoAAAAC/umm.gif
+https://media1.tenor.com/m/opEBWw0uddoAAAAC/umm.gif
 
 
 
